@@ -12,3 +12,4 @@ And if a nigga get a attitude
 Pop it like it's hot, Pop it like it's hot, Pop it like it's hot
 I got the Rollie on my arm and I'm pouring Chandon
 And I roll the best weed 'cause I got it going on
+S. dogg
